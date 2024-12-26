@@ -1,1 +1,2 @@
-CSE101
+Ethical Leadership (OSUN102)
+
